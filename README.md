@@ -7,6 +7,6 @@
 
 ### Full Paper
 
-[Zalewski__Nk1.pdf](Zalewski__Nk1.pdf)
+[Zalewski_Nk1.pdf](Zalewski_Nk1.pdf)
 
 
