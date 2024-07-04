@@ -12,6 +12,6 @@ promising antiemetics in contemporary medicine, as well as the statistical metho
 
 ### Full Paper
 
-[Zalewski__Nk1 (2).pdf](./Zalewski__Nk1 (2).pdf)
+[Zalewski__Nk1.pdf.pdf](./Zalewski__Nk1.pdf.pdf)
 
 
